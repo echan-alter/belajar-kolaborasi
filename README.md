@@ -3,5 +3,5 @@ Belajar sambil dengerin lagu Nina <br>
 Di Platform YouTube Music <br>
 Antrian Selanjutnya For Revenge : jakarta Hari Ini <br>
 Jeda sebentar karena terdapat kesalahan <br>
-Banyak nyamuk njir <br>
+Banyak nyamuk njir <br> <br>
 Sepertinya sudah saatnya pulang
