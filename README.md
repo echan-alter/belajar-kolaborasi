@@ -1,4 +1,7 @@
 # belajar-kolaborasi
 Belajar sambil dengerin lagu Nina <br>
 Di Platform YouTube Music <br>
-Antrian Selanjutnya For Revenge : jakarta Hari Ini
+Antrian Selanjutnya For Revenge : jakarta Hari Ini <br>
+Jeda sebentar karena terdapat kesalahan <br>
+Banyak nyamuk njir <br>
+Sepertinya sudah saatnya pulang
